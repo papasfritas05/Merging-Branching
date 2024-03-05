@@ -7,4 +7,4 @@ none of this
 that is false
 im ahead of brant
 
-no JP is messing it up
+now brant is the one holding us back
